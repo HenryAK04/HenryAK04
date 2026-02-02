@@ -24,7 +24,7 @@ Currently learning programming, web development, and building real-world skills 
 
 ### 📫 Let’s Connect!
 - Email: your-henryak04@gmail.com
-- LinkedIn: *()*
+- LinkedIn: *(https://www.linkedin.com/in/kadhume-alfred-henry-62a790396)*
 - WhatsApp: *(+256707580735)*
 
 ---
